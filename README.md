@@ -1,3 +1,2 @@
 # hello-world
-slkdjflkjsdlfalkjasdfllsajdfsadlkfj;lsadfjlk;jllk
-mukit sir :: the legend
+dada boss..emne pochaben na.
